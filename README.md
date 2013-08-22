@@ -1,4 +1,4 @@
-Week 6 Tasks
+Week 7 Tasks
 ============
 
 Readings for next week
